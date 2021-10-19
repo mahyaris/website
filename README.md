@@ -3,8 +3,7 @@
 ![alt text](https://www.memesmonkey.com/images/memesmonkey/57/57ac9434ab234a4e37406a8cc6ac309a.jpeg)
 
 
-Excuse the mess, this place is under construction.
-![image]
+The end is near. Hail Satan.
 
 You can use the [editor on GitHub](https://github.com/mahyaris/website/edit/main/README.md) to maintain and preview the content for your website in Markdown files.
 
